@@ -1,4 +1,4 @@
 # fin
 so this is final?
 
-what should i write here... ;-;
+it's my course work for college btw
